@@ -10,4 +10,4 @@ Meu nome é Thiago Xavier
 
 00001117144574sp@al.educacao.sp.gov.br
 
-
+![](https://tenor.com/pt-BR/view/umm-gif-11714145596342171098)
