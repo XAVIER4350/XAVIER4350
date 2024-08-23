@@ -10,3 +10,4 @@ Meu nome é Thiago Xavier
 
 00001117144574sp@al.educacao.sp.gov.br
 
+![](https://tenor.com/pt-BR/view/naruto-gif-19427546)
